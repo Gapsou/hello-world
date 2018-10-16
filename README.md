@@ -1,2 +1,2 @@
 # hello-world
-Just another repository
+Suck on my big fat cock
